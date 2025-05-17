@@ -1,1 +1,0 @@
-# Municipalidad_Pacanguilla_2025
